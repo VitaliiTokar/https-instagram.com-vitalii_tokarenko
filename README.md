@@ -1,0 +1,2 @@
+# https-instagram.com-vitalii_tokarenko-igshid-134tii6yqdkgw
+A friend of mine found out about the problem   calibration and overconfidence.  After   of this he began to say: "Research  so that  experts  often   show  are mistaken, so they cannot be trusted.  Therefore, when I make predictions, I  I try to rely on  will go as it was. ”  Having said that, he  sank  Bsg  confusing  and  dubious extrapolation.  In strangers  arguments distortion)false argumentEl They are striking more strongly than in their own.
